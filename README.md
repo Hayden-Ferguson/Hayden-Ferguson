@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Hayden-Ferguson
+- 👀 I’m interested in Artificial Intelligence
+- 🌱 I’m currently learning ...
+- 📫 How to reach me haydenf1204@gmail.com
