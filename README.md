@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Hayden-Ferguson
-- 👀 I’m interested in Artificial Intelligence
+- 👀 I’m interested in Artificial Intelligence, getting an internshp for Fall 2022
 - 🌱 I’m currently learning ...
-- 📫 How to reach me haydenf1204@gmail.com
+- 📫 How to reach me haydenf1204@gmail.com, ferguh2@rpi.edu
