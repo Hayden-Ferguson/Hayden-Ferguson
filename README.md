@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Hayden-Ferguson
 - 👀 I’m interested in Artificial Intelligence, and getting an entry-level job for Fall 2024
-- 🌱 I’m currently learning ...
-- 📫 How to reach me haydenf1204@gmail.com, ferguh2@rpi.edu
+- 📫 How to reach me: haydenf1204@gmail.com
