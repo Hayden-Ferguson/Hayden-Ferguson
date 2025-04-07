@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Hayden-Ferguson
-- 👀 I’m interested in Artificial Intelligence, and getting an entry-level job for Fall 2024
+- 👀 I’m interested in Artificial Intelligence, and getting an entry-level job for Summer/Fall 2025
 - 📫 How to reach me: haydenf1204@gmail.com
